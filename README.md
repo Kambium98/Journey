@@ -1,4 +1,1 @@
 Andika Pramudita
-
-
-Belajar
